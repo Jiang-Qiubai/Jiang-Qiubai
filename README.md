@@ -1,5 +1,6 @@
 # About me👋
 I'm a master in XMU.Any Question please contact with my mail:31520251154460@stu.xmu.edu.cn
+It is my honor to have my homepage browsed.
 <!--
 **Jiang-Qiubai/Jiang-Qiubai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
