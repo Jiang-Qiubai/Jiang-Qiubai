@@ -1,6 +1,8 @@
 # About me👋
 I'm a master in XMU.
 
+You can call me Jiang（Chinese name) or Jungle(English name).
+
 Any Question please contact with my mail:31520251154460@stu.xmu.edu.cn😄
 
 It is my honor to have my homepage browsed.🙏
