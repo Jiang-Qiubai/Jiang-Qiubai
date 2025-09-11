@@ -1,5 +1,5 @@
 # About me👋
-I'm a master（🐮🐎）in XMU majoring AI.
+I'm a master（🐮🐎）in XMU majoring in AI.
 
 You can call me Jiang(Chinese name) or Jungle(English name).
 
