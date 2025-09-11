@@ -7,7 +7,7 @@ Any Question please contact with my mail:31520251154460@stu.xmu.edu.cn
 
 It is my honor to have my homepage browsed.🙏
 
-We believe that multimodal large models will change the world.
+We believe that multimodal large language models will change the world.
 
 我们相信多模态大模型改变世界🌍
 <!--
