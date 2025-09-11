@@ -7,8 +7,9 @@ Any Question please contact with my mail:31520251154460@stu.xmu.edu.cn
 
 It is my honor to have my homepage browsed.🙏
 
-We believe that multimodal large language models will change the world.
-我们相信多模态大模型改变世界🌍
+We believe that multimodal large language models will change the world.This is precisely the meaning of our hard work.
+
+我们相信多模态大模型改变世界🌍这也是我们努力工作的意义❤️
 <!--
 **Jiang-Qiubai/Jiang-Qiubai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
