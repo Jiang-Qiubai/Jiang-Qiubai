@@ -7,7 +7,7 @@ Any Question please contact with my mail:31520251154460@stu.xmu.edu.cn
 
 It is my honor to have my homepage browsed.🙏
 
-We believe that multimodal large language models will change the world.This is precisely the meaning of our hard work.
+We believe that multimodal large language models will change the world.Actually,this is the meaning of our hard work.
 
 我们相信多模态大模型改变世界🌍这也是我们努力工作的意义❤️
 <!--
